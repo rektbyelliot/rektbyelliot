@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rektbyelliot
+- 👀 I’m interested in becoming better at coding.
+- 🌱 I’m currently learning to learn python.(Trying to learn but I suck!) haha 
