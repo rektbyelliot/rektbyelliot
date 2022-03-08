@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @rektbyelliot
 - 👀 I’m interested in becoming better at coding.
-- 🌱 I’m currently learning to learn python.(Trying to learn but I suck!) haha 
+- 🌱 I’m currently learning trying to learn python.(Trying to learn but I suck!) haha 
